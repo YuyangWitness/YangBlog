@@ -5,4 +5,5 @@ Because of I want to summarize the progress of learning and the thinking about t
 If you have any questions and something that you want to tell me. Please feel free to contact me.
 
 Email: jxndyy2015@163.com
+
 WeChat offcial account: Claire学习
